@@ -9,3 +9,6 @@
 
 #
 
+[main acc](https://github.com/ivanbadthings) ㅤ   ㅤ  ㅤ  $\color{#959595}{𝜗୧⠀ׁ~  Subaru}$ ㅤ   ㅤ⊹  ㅤ  
+
+hi
